@@ -1,2 +1,0 @@
-# yulia
-yulia
